@@ -214,4 +214,4 @@ Sins of a Solar Empire is offered as a full free version, providing all features
 Take charge of the universe today! [Download Sins of a Solar Empire for free](https://www.softyne.com/sins-of-a-solar-empire) and embark on your galactic conquest now!
 
 ---
-**Last updated:** 2026-09-17 21:56:11 UTC
+**Last updated:** 2026-09-18 00:00:11 UTC
